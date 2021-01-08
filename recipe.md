@@ -1,0 +1,1 @@
+Take two pieces of bread and some chopped onions,capsicums, and cucumber and after that we have to put these vegetables on a slice of bread and on the other slice of bread a bit of mayonise and some spieces and after that we have to close the slides and grill it on pan for 5 to 10 minsand after that enjoy the sandwhich
